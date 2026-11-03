@@ -55,7 +55,11 @@ And of course...
 
 ## With The Uncooperative Guide
 Vergilius AKA the RED GAZE
+
 *To not to be confused by Vergil From Devil May Cry*
+
+## And THE BUS DRIVER
+Charon - Candy?
 
 
 ## Why I Like Limbus Company
